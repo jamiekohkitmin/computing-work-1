@@ -2,6 +2,4 @@
 
 welcome to this interesting profile
 
-i like eating and sleeping
-
-click here for educational stuff
+i like eating and sleeping :')
