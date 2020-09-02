@@ -19,4 +19,4 @@ I hid behind the big red back door. I took a peek and saw people in black robes 
 
 #### _The Horrors_
 The leader lifted her head to reveal her face, her all-too-familiar eyes met mine. Her round nose, thin lips and square glasses. __It was Ms Lim__ I rubbed my eyes and pinched myself, not believing how her kind self earlier in the day was just a disguise. 
-She screamed in her high-pitched voice, "CATCH HER!" Her followers closed the door to find me behind it and they surrounded me. I was trapped, unable to escape.
+She screamed in her high-pitched voice, "CATCH HER!" Her followers closed the door to find me behind it and they surrounded me. I was trapped, unable to escape. Her high-pitched voice reverberated through the walls of my clueless mind. 
