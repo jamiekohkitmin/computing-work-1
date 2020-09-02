@@ -18,5 +18,13 @@ As I walked towards the Y1 and Y2 block, I heard shouting coming from the third 
 I hid behind the big red back door. I took a peek and saw people in black robes who looked like they were fighting. When the leader, who could be differentiated by a big black hat, turned around, our eyes met and my jaw dropped...
 
 #### _The Horrors_
-The leader lifted her head to reveal her face, her all-too-familiar eyes met mine. Her round nose, thin lips and square glasses. __It was Ms Lim__ I rubbed my eyes and pinched myself, not believing how her kind self earlier in the day was just a disguise. 
+The leader lifted her head to reveal her face, her all-too-familiar eyes met mine. Her round nose, thin lips and square glasses. __It was Ms Lim.__ I rubbed my eyes and pinched myself, not believing how her kind self earlier in the day was just a disguise. 
 She screamed in her high-pitched voice, "CATCH HER!" Her followers closed the door to find me behind it and they surrounded me. I was trapped, unable to escape.
+My heart beat wildly in my chest, like it was going to explode at any time. I had no idea what was going to happen to me. They dragged me to their leader. Ms Lim's devilish eyes glared at me and she said, "Now that you know my secret, you are done for. But just to satisfy your deadly curiosity, you may ask me three questions."
+
+##### _Answers_
+Since I already knew that I was done for, I decided to ask away. "What are you doing, Why are you doing this."
+Ms Lim answered with a devilish grin, "By day, I'm just a kind teacher-in-charge at the hostel. But by night, I run a school for ghosts. The people who caught you are my fellow human teachers. We all have an ability to see ghosts and communicate with them. You can't see but there are about 30 ghosts circling you right now. I founded this school to teach ghosts to communicate with humans who can't see them so they can communicate with their loved ones." I asked, "If what you're doing isn't bad, why are you doing this so secretly?" She sighed, "If I get found out, I won't be able to teach here anymore. That's I have to make whoever who finds out about me at night keep quiet." 
+
+###### _The End, or is it?_
+Ms Lim said. "Your three questions have been answered and now it's time for you to go." I closed my eyes and saw a yellow glimmer, it was my sunflower slippers! My sunflower slipper had knocked everyone out, just in time for me to run...
