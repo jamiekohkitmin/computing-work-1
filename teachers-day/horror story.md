@@ -11,3 +11,6 @@ Everyone warns me about not leaving my room after 10pm, I wonder why.
 Tick tock, the clock strikes 10 and I can't go out. 
 I sit in my room looking out of the window at the night sky. Dark clouds swirled in the sky. 
 Many questions formed in my mind. _Why can't I go out? What could be so dangerous out there? This is a school! Shouldn't there not be anything happening at night?
+
+
+
