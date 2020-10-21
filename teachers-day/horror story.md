@@ -20,7 +20,7 @@ I hid behind the big red back door. I took a peek and saw people in black robes 
 #### _The Horrors_
 The leader lifted her head to reveal her face, her all-too-familiar eyes meeting mine. Her round nose, full lips and round glasses. *__It was Ms Sunny.__* I rubbed my eyes and pinched myself, not believing how her kind self earlier in the day was just a disguise. 
 She screamed in her high-pitched voice, "CATCH HER!" Her followers closed the door to find me behind it and they surrounded me. I was trapped, unable to escape.
-My heart beat wildly in my chest, like it was going to burst anytime now. I had no idea what was going to happen. They dragged me to their leader. Ms Sunny's devilish eyes glared at me and she said, "Now that you know my secret, you are done for. But just to satisfy your deadly curiosity, you may ask me three questions."
+My heart beat wildly in my chest, like it was going to burst anytime now. Her screeching voice pierced the air and shocked me greatly. I had no idea what was going to happen. They dragged me to their leader. Ms Sunny's devilish eyes glared at me and she said, "Now that you know my secret, you are done for. But just to satisfy your deadly curiosity, you may ask me three questions."
 
 ##### _Answers_
 Since I already knew that I was done for, I decided to ask away. "What are you doing, Why are you doing this."
